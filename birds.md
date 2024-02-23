@@ -13,4 +13,4 @@ Bird Watching Tips
 Bird Feeders: Setting up bird feeders can attract a variety of birds to your yard.
 Binoculars: A good pair of binoculars can help you observe birds from a distance without disturbing them.
 
-Edit No_1
+PUsh number 3 
